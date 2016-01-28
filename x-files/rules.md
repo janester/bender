@@ -28,7 +28,7 @@
 - Mulder loses or destroys his overcoat, and later appears wearing it again as if nothing had happened.
 - Scully happens to know/notice some obscure fact which later helps solve the case.
 - Scully gets [kidnapped](https://media1.giphy.com/media/3o85xGvmQJ1QYfPgmk/200.gif).
-- Mulder and Scully actually [touch each other](https://media3.giphy.com/media/l41lLdas0plqBrH9K/200.gif), anywhere, anyhow.
+- Mulder and Scully actually [touch each other](https://media4.giphy.com/media/3oEduONNY6WEsP1jRS/200.gif), anywhere, anyhow.
 - Smoking Man smokes in front of a "No Smoking" sign.
 - Mulder's [sister](https://media4.giphy.com/media/l41lXVaQs9gPOiDQs/200.gif) is mentioned (by him or anyone else).
 - Mulder actually watches porn, or there is physical evidence of porno.
