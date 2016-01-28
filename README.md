@@ -1,3 +1,3 @@
 # Bender
 
-- [`X-Files`](bender/x-files/rules.md)
+- [`X-Files`](https://github.com/janester/bender/blob/master/x-files/rules.md)
