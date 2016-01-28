@@ -1,5 +1,7 @@
 # X-Files Drinking Game
 
+![](https://media1.giphy.com/media/3o85xBa0pnoEMZ2los/200.gif)
+
 ## Base Rules
 
 - Mulder utters a wry witticism or "[Mulderism](http://40.media.tumblr.com/d6bf619f2a2e86a7ed5e0a09a0877056/tumblr_n0cu2cp5b61trelvio1_500.png)" (two sips if Scully actually smiles as a result).
