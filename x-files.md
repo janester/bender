@@ -2,7 +2,7 @@
 
 ## Base Rules
 
-- Mulder utters a wry witticism or "[Mulderism]()" (two sips if Scully actually smiles as a result).
+- Mulder utters a wry witticism or "[Mulderism](http://40.media.tumblr.com/d6bf619f2a2e86a7ed5e0a09a0877056/tumblr_n0cu2cp5b61trelvio1_500.png)" (two sips if Scully actually smiles as a result).
 - Mulder or Scully smile.
 - Any character, including Mulder or Scully, shows their badge.
 - Mulder is called "Fox."
