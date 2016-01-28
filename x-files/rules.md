@@ -30,7 +30,7 @@
 - Scully gets [kidnapped](https://media1.giphy.com/media/3o85xGvmQJ1QYfPgmk/200.gif).
 - Mulder and Scully actually [touch each other](https://media3.giphy.com/media/l41lLdas0plqBrH9K/200.gif), anywhere, anyhow.
 - Smoking Man smokes in front of a "No Smoking" sign.
-- Mulder's sister is mentioned (by him or anyone else).
+- Mulder's [sister](https://media4.giphy.com/media/l41lXVaQs9gPOiDQs/200.gif) is mentioned (by him or anyone else).
 - Mulder actually watches porn, or there is physical evidence of porno.
 - Mulder puts a masking-tape X on the window.
 - Scully wears any footwear other than pumps.
