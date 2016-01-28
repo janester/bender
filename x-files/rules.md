@@ -12,7 +12,7 @@
 - Mulder is called "Fox."
 - Scully is called "Dana."
 - Mulder eats [sunflower seeds](http://x-files.rainknight.net/wp-content/uploads/2015/07/01x17_miracleman_sunflowerseeds.jpg).
-- Reference is made to Mulder's obsession with porn.
+- [Reference](http://i58.photobucket.com/albums/g246/sey115/whatevertape_zpsa4312bcb.gif) is made to Mulder's obsession with porn.
 - Mulder talks to Deep Throat or Mr. X.
 - A computer does something computers [cannot do](https://media.giphy.com/media/l41lGHHHEJyUULOlq/giphy.gif).
 - You see [Smoking Man](http://www.syti.net/Images/XFiles4.jpg) (smoking or not).
