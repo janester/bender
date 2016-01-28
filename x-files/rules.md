@@ -34,7 +34,7 @@
 - Smoking Man smokes in front of a "No Smoking" sign.
 - Mulder's [sister](https://media4.giphy.com/media/l41lXVaQs9gPOiDQs/200.gif) is mentioned (by him or anyone else).
 - Mulder actually watches porn, or there is physical evidence of porno.
-- Mulder puts a masking-tape X on the window.
+- Mulder puts a [masking-tape X](https://manicgeekydreamgirl.files.wordpress.com/2015/01/2632262.jpg) on the window.
 - Scully wears any footwear other than pumps.
 - Scully tells Mulder to "get some sleep."
 - A mutant/alien/monster kills someone.
