@@ -53,6 +53,7 @@
 - Bomb at paranormal activity in credits
 - Park rangers
 - Episode specific rule selected before opening credits
+- Mulder jumps to a supernatural conclusion with [very little evidence](https://49.media.tumblr.com/ac491edf38dba454e7b8f1d382d1902a/tumblr_nsrsowvnYH1r1huy0o1_500.gif)
 
 ## Sources
 - [WebTender](http://www.webtender.com/handbook/games/x-files.game)
