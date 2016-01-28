@@ -15,7 +15,7 @@
 - Reference is made to Mulder's obsession with porn.
 - Mulder talks to Deep Throat or Mr. X.
 - A computer does something computers [cannot do](https://media.giphy.com/media/l41lGHHHEJyUULOlq/giphy.gif).
-- You see Smoking Man (smoking or not).
+- You see [Smoking Man](http://www.syti.net/Images/XFiles4.jpg) (smoking or not).
 - Mulder or Scully call each other on cell phone and say, "It's me" or "Where are you?"
 - Scully gives some long "scientific" explanation.
 - Scully does an [autopsy](http://40.media.tumblr.com/26e9366437ccbabb3285caff6084c340/tumblr_nbx65yvNGY1rdqfuco1_1280.png).
