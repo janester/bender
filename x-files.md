@@ -14,7 +14,7 @@
 - You see Smoking Man (smoking or not).
 - Mulder or Scully call each other on cell phone and say, "It's me" or "Where are you?"
 - Scully gives some long "scientific" explanation.
-- Scully does an autopsy.
+- Scully does an [autopsy](http://40.media.tumblr.com/26e9366437ccbabb3285caff6084c340/tumblr_nbx65yvNGY1rdqfuco1_1280.png).
 - Mulder or Scully is using a car-battery-powered Super-Flashlight.
 - Mulder happens to know/notice some obscure fact which later helps solve the case.
 - Scully misses the proof of a paranormal event.
