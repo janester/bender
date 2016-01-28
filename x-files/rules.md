@@ -38,7 +38,7 @@
 - A mutant/alien/monster kills someone.
 - Mulder is called "Spooky."
 - Scully is called "Starbuck."
-- Mulder is seen in his underwear or a Speedo swimsuit.
+- Mulder is seen in his underwear or a [Speedo swimsuit](http://www.orgonebox.org/allegoric/wp-content/gallery/duchovny_david/xfiles-000/xfiles_000_(14).jpg).
 - Scully smokes a cigarette, or Mulder has a drink.
 - Mulder or Scully actually shoot their guns.
 - They drive a car other than a Ford Taurus.
