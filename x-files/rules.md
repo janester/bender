@@ -4,6 +4,8 @@
 
 ## Base Rules
 
+#### Take A Drink When...
+
 - Mulder utters a wry witticism or "[Mulderism](http://40.media.tumblr.com/d6bf619f2a2e86a7ed5e0a09a0877056/tumblr_n0cu2cp5b61trelvio1_500.png)" (two sips if Scully actually smiles as a result).
 - Mulder or Scully [smile](http://3.bp.blogspot.com/-Cxop2z4jar0/T0U_u_QhR_I/AAAAAAAAAAc/f3zngtPd5tM/s640/shadow+scully+creepy+smile+bad+hair.PNG).
 - Any character, including Mulder or Scully, shows their [badge](http://gillianandersonfan.com/gallery/albums/television/1993-2002%20-%20The%20X-Files/Screencaps/Season%203/S03E15%20-%20Piper%20Maru/KMP-DVD0947.jpg).
