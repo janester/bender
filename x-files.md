@@ -2,11 +2,10 @@
 
 ## Base Rules
 
-- Mulder utters a wry witticism or "Mulderism" (two sips if Scully actually smiles as a result).
+- Mulder utters a wry witticism or "[Mulderism]()" (two sips if Scully actually smiles as a result).
 - Mulder or Scully smile.
-- See numbers 10, 13, or 10/13 (Chris Carter's wife's birthday), or 11/21 (Chris Carter's birthday). We don't really know which is whose birthday.
 - Any character, including Mulder or Scully, shows their badge.
-- Mulder s called "Fox."
+- Mulder is called "Fox."
 - Scully is called "Dana."
 - Mulder eats sunflower seeds.
 - Reference is made to Mulder's obsession with porn.
