@@ -43,7 +43,7 @@
 - Mulder or Scully actually shoot their guns.
 - They drive a car other than a Ford Taurus.
 - Scully [drives](http://gillianandersonfan.com/gallery/albums/television/1993-2002%20-%20The%20X-Files/Screencaps/Season%203/S03E15%20-%20Piper%20Maru/KMP-DVD0947.jpg).
-- Credits say something other than "The Truth is Out There."
+- Credits say something [other](https://s-media-cache-ak0.pinimg.com/236x/3c/eb/4f/3ceb4f783aee6084bb6b0803ca6a4337.jpg) than "The Truth is Out There."
 - Mulder or Scully have a date or romantic encounter (not with each other).
 - Well-Manicured Man (or any other of the mysterious cabal) appears.
 - Mulder and Scully kiss or say, "I love you."
