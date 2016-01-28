@@ -4,7 +4,7 @@
 
 - Mulder utters a wry witticism or "[Mulderism](http://40.media.tumblr.com/d6bf619f2a2e86a7ed5e0a09a0877056/tumblr_n0cu2cp5b61trelvio1_500.png)" (two sips if Scully actually smiles as a result).
 - Mulder or Scully smile.
-- Any character, including Mulder or Scully, shows their badge.
+- Any character, including Mulder or Scully, shows their [badge](http://gillianandersonfan.com/gallery/albums/television/1993-2002%20-%20The%20X-Files/Screencaps/Season%203/S03E15%20-%20Piper%20Maru/KMP-DVD0947.jpg).
 - Mulder is called "Fox."
 - Scully is called "Dana."
 - Mulder eats sunflower seeds.
@@ -40,7 +40,7 @@
 - Scully smokes a cigarette, or Mulder has a drink.
 - Mulder or Scully actually shoot their guns.
 - They drive a car other than a Ford Taurus.
-- Scully drives.
+- Scully [drives](http://gillianandersonfan.com/gallery/albums/television/1993-2002%20-%20The%20X-Files/Screencaps/Season%203/S03E15%20-%20Piper%20Maru/KMP-DVD0947.jpg).
 - Credits say something other than "The Truth is Out There."
 - Mulder or Scully have a date or romantic encounter (not with each other).
 - Well-Manicured Man (or any other of the mysterious cabal) appears.
