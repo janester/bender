@@ -27,7 +27,7 @@
 - Lone Gunmen appear/are consulted.
 - Mulder loses or destroys his overcoat, and later appears wearing it again as if nothing had happened.
 - Scully happens to know/notice some obscure fact which later helps solve the case.
-- Scully gets kidnapped.
+- Scully gets [kidnapped](https://media1.giphy.com/media/3o85xGvmQJ1QYfPgmk/200.gif).
 - Mulder and Scully actually touch each other, anywhere, anyhow.
 - Smoking Man smokes in front of a "No Smoking" sign.
 - Mulder's sister is mentioned (by him or anyone else).
