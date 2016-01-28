@@ -53,7 +53,7 @@
 
 ## Added Rules
 
-- Words on the screen
+- [Words](http://www.pingeek.com/tv/xfiles/ice1.jpg) on the screen
 - Bomb at paranormal activity in credits
 - Park rangers
 - Episode specific rule selected before opening credits
