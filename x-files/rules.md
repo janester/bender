@@ -11,7 +11,7 @@
 - Any character, including Mulder or Scully, shows their [badge](http://gillianandersonfan.com/gallery/albums/television/1993-2002%20-%20The%20X-Files/Screencaps/Season%203/S03E15%20-%20Piper%20Maru/KMP-DVD0947.jpg).
 - Mulder is called "Fox."
 - Scully is called "Dana."
-- Mulder eats sunflower seeds.
+- Mulder eats [sunflower seeds](http://x-files.rainknight.net/wp-content/uploads/2015/07/01x17_miracleman_sunflowerseeds.jpg).
 - Reference is made to Mulder's obsession with porn.
 - Mulder talks to Deep Throat or Mr. X.
 - A computer does something computers [cannot do](https://media.giphy.com/media/l41lGHHHEJyUULOlq/giphy.gif).
