@@ -12,7 +12,7 @@
 - Mulder eats sunflower seeds.
 - Reference is made to Mulder's obsession with porn.
 - Mulder talks to Deep Throat or Mr. X.
-- A computer does something computers cannot do.
+- A computer does something computers [cannot do](https://media.giphy.com/media/l41lGHHHEJyUULOlq/giphy.gif).
 - You see Smoking Man (smoking or not).
 - Mulder or Scully call each other on cell phone and say, "It's me" or "Where are you?"
 - Scully gives some long "scientific" explanation.
