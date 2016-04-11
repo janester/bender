@@ -1,3 +1,8 @@
 # Bender
 
-- [`X-Files`](https://github.com/janester/bender/blob/master/x-files/rules.md)
+## Drinking Games
+
+- [`X-Files`](/x-files/rules.md)
+
+## Modified Games
+- [`Settlers of Catan`](/settlers/2_person_rules.md)
